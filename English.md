@@ -1,4 +1,4 @@
-My name is Lev Bazdyriev, and I am a military volunteer since 2014. My journey into military volunteering began during a turbulent time in our country, and since then, aiding our military forces has become a significant part of my life.
+My name is Lev Bazdyriev, and I am a military volunteer since two thousand and fourteen year. My journey into military volunteering began during a turbulent time in our country, and since then, aiding our military forces has become a significant part of my life.
 
 I am married to a wonderful woman named Anzhelika. She has been my constant support and rock throughout my volunteering journey. My wife understands and shares my commitment to helping and protecting our nation, which has always been a source of strength for me.
 
